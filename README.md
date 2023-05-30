@@ -10,6 +10,6 @@
 
 📫 Connect with me on [LinkedIn](https://www.linkedin.com/in/aranzabotti/) to stay in touch! 🤝
 
-⚡ Fun fact: Besides coding, I find joy in playing beautiful melodies on the piano 🎹 and indulging in the world of skincare and beauty! 💄
+⚡ Fun fact: Besides coding, I find joy in playing beautiful melodies on the piano🎹 and indulging in the world of skincare and beauty!💄
 
 Feel free to explore my repos and connect with me! Let's embark on a creative journey and make something extraordinary together! 😄🌟
